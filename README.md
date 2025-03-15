@@ -61,3 +61,10 @@ Feel free to contribute by submitting issues or pull requests.
 ## License
 This project is licensed under the **MIT License**.
 
+![ss_2_taticsbord](https://github.com/user-attachments/assets/5beb80e7-effc-4dc9-a30e-8f202e0e3770)
+
+![ss_tatics_bord](https://github.com/user-attachments/assets/f1146b6c-8832-43ec-a32a-dc31b8c57a46)
+
+
+https://github.com/user-attachments/assets/191dd628-0da7-4b3a-ae29-d10f9cce663e
+
